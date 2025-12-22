@@ -7,7 +7,9 @@
   # ![BOOK](https://64.media.tumblr.com/e68f767694e002975b449eecd385ac52/45b70a72e20d3d24-08/s75x75_c1/32d869ef3320942ef5a51b6f0d47f05a3bc20683.gifv) ![MOON](https://64.media.tumblr.com/da18de05f80a98463aa289af78033b3f/45b70a72e20d3d24-20/s75x75_c1/b0f292b6835c260e662338169e7ff53f48237ece.gifv) ![KEY](https://64.media.tumblr.com/e6b97bdd6273a24dbbbd90942bc5c396/28d5923266b2008e-5e/s75x75_c1/7c5dae409250b912851ba01096db17f5cd05d3ec.gifv)
 
   <p>𝚑𝚎/𝚑𝚒𝚖 . 𝚙𝚊𝚗 . 𝚠𝟸𝚒 preference</p>
-  <p>Fount and Espresso kinnie, Clotted Cream</p> [c'link](https://otherkin.wiki/wiki/Copinglink)
+  <p>𝙵𝚘𝚞𝚗𝚝 𝚊𝚗𝚍 𝙴𝚜𝚙𝚛𝚎𝚜𝚜𝚘 𝚔𝚒𝚗𝚗𝚒𝚎,</p>
+  <p>𝙲𝚕𝚘𝚝𝚝𝚎𝚍 𝙲𝚛𝚎𝚊𝚖 <a href = "https://otherkin.wiki/wiki/Copinglink"> 𝚌’𝚕𝚒𝚗𝚔</a></p>
+
   <p>𝚐𝚞𝚒𝚝𝚊𝚛 / 𝚙𝚒𝚊𝚗𝚘 𝚙𝚕𝚊𝚢𝚎𝚛 + 𝚙𝚒𝚡𝚎𝚕 𝚊𝚛𝚝𝚒𝚜𝚝 + 𝚎𝚗𝚝𝚘𝚖𝚘𝚕𝚘𝚐𝚢 𝚎𝚗𝚝𝚑𝚞𝚜𝚒𝚊𝚜𝚝 ... 𝚙𝚕𝚜𝚙𝚕𝚜 𝚝𝚊𝚕𝚔 𝚝𝚘 𝚖𝚎 𝚊𝚋𝚘𝚞𝚝 𝚒𝚗𝚜𝚎𝚌𝚝𝚜 ‘^`
     </p>
     
