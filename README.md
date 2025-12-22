@@ -13,7 +13,6 @@
     </p>
     
 # ![SP](https://64.media.tumblr.com/dcde1a939853676c480d74f4ef813479/f539f8fbd383af06-56/s250x400/33d3ed5dcf61633e9135db4d67146011aa36fe20.gifv) ![IJIJ](https://64.media.tumblr.com/f272e85c84faa1afe47e1c85fbd42ee2/44209fb83895743e-88/s250x400/30bbfb166593acc97b976699c4a959415fea5d4b.gifv)
-# ![PIAP](https://64.media.tumblr.com/90f75dece5d0c3b326f916685ecbca68/daa0fddf21ff9628-97/s100x200/46993d61968f87fea04340325024bcea15ca0b70.pnj) ![BOOK](https://64.media.tumblr.com/a75c9ea885761a089c3a8fff7c9cd0e7/def85c6d889febfc-97/s250x400/6053c25dd615ee26083311b336dfe8c31622a839.pnj)
 </div>
 </html>
 
