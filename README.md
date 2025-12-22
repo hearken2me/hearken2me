@@ -1,7 +1,7 @@
 # ![STRBNR](https://imgdlvr.com/pic/photoeditor.com/20251220-8687/public)
 <html>
   <div align="center">
-    <tt>Oh, love and truth, where are you?</tt>
+    <tt><i>𝙾𝚑, 𝚕𝚘𝚟𝚎 𝚊𝚗𝚍 𝚝𝚛𝚞𝚝𝚑 ... 𝚠𝚑𝚎𝚛𝚎 𝚊𝚛𝚎 𝚢𝚘𝚞?</i></tt>
   <br>
   <br>
   <p>𝙷𝚎/𝚑𝚒𝚖 . 𝙿𝚊𝚗 . 𝚆𝟸𝙸 𝚙𝚛𝚎𝚏</p>
